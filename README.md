@@ -11,7 +11,7 @@
 
 - 📫 Você me acha através do e-mail **rsvitorh@mail.com** ou **vitorhrs1009@gmail.com**
 
-- 📄 Conheça minhas experiências [www.linkedin.com/in/vitor-hrs](www.linkedin.com/in/vitor-hrs)
+- 📄 Conheça minhas experiências **[www.linkedin.com/in/vitor-hrs](www.linkedin.com/in/vitor-hrs)**
 
 <div>
   <a href="https: //github.com/vitorh-rs">
