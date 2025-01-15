@@ -9,7 +9,7 @@
 
 - 💬 Me pergunte sobre **Python, C, Excel e Python**
 
-- 📫 Você me acha através do e-mail **vitorhrs1009@gmail.com**
+- 📫 Você me acha através do e-mail **rsvitorh@mail.com** ou **vitorhrs1009@gmail.com**
 
 - 📄 Conheça minhas experiências [www.linkedin.com/in/vitor-hrs](www.linkedin.com/in/vitor-hrs)
 
